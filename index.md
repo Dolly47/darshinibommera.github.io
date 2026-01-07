@@ -1,6 +1,5 @@
 
 
-# Darshini Bommera
 ## Senior IT & Information Security Leader | Cloud, SaaS & Governance | Remote
 
 Senior IT and Information Security leader with experience designing and
